@@ -10,7 +10,7 @@
 
 School: [HSTAT](https://www.hstat.org/)
 
-Bio: I like **food**
+Bio: I like like like like like like like like like like like **food**
 
 Schedule:
 1. PE
